@@ -1,4 +1,4 @@
-# Precio-ingredientes-opiniones-beneficios
+# Congelum precio, comentarios, qué es: alivio rápido y natural para el dolor muscular y articular
 <!-- wp:paragraph -->
 <p>¿Tienes dolor en las articulaciones, hinchazón o rigidez muscular? Congelum es un gel de efecto frío que actúa desde el primer uso, proporcionando alivio rápido gracias a su composición natural basada en extractos vegetales seleccionados con precisión.</p>
 <!-- /wp:paragraph -->
